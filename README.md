@@ -8,5 +8,5 @@
 版权所有 <a href="http://enue.cn">&copy;丛林文化</a>
 <br/>
 <p>note:<br/>
-  &nbsp;&nbsp;1：邮件＃换成@ 
+  &nbsp;&nbsp;1：邮件＃换成@。
 </p>  
