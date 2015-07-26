@@ -2,7 +2,7 @@
 <br/>
 
 
-当然，有好的网站，咨询，也可以电邮我。lvsevens#qq.com
+当然，有好的网站，咨询，也可以电邮我。suyear#qq.com
 <br/>
 
 版权所有 <a href="http://enue.cn">&copy;丛林文化</a>
